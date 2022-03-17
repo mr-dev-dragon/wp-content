@@ -1,0 +1,2 @@
+s golden.
+khgkjgkjhgkj
